@@ -1,1 +1,1 @@
-# 1v1-LOL - topVAZ #3
+# 1v1 LOL - topVAZ #3
